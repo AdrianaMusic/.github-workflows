@@ -1,2 +1,9 @@
-# -Amazon--AdrianaDJ-REALSource-DigiCert-Ing-Bank-Intellectual-Property-Copryright-Trademark
-Founder Dragonfly Digital Diamonds DigiCert Cloud Open Source License  E commerce Binary Bitcoin Inventor &amp; Trader ALL Donations Welcome @ingwenya.invest@gmail.com (Stay Tuned For  Crypto Trading Tips)
+CREATIVELIVE
+AI 
+IS::OPENSOURCE# 
+SPOTIFY.ADRIANA-AUTHOROPENSOURCE::OPENSOURCE:/ADRIANAMUSIC AUTHORIZED 
+Sure 
+Json-A3ana Developer Creator  Studios 
+
+Welcome to the Adriana wiki!
+
