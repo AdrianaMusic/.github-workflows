@@ -1,8 +1,4 @@
-CREATIVELIVE
-AI 
-IS::OPENSOURCE# 
-SPOTIFY.ADRIANA-AUTHOROPENSOURCE::OPENSOURCE:/ADRIANAMUSIC AUTHORIZED 
-Sure 
+
 Json-A3ana Developer Creator  Studios 
 
 Welcome to the Adriana wiki!
