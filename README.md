@@ -1,1 +1,1 @@
-Azure
+Thank you
